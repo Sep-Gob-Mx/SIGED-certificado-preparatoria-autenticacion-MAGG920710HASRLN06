@@ -1,2 +1,0 @@
-# SIGED-certificado-preparatoria-autenticacion-MAGG920710HASRLN06
-MAGG920710HASRLN06
